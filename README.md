@@ -1,2 +1,2 @@
 
-Deleted
+Deleted concept by its owner.
